@@ -1,4 +1,5 @@
 # Carding services
+[plug: chat on discord](https://discord.gg/4k6jwu8)
 ## Trusted sellers
 - none
 ## Scam sellers
